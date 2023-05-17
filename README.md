@@ -12,4 +12,4 @@ Want to get in touch? I'm usually `@tkudlicka`.
 
 * GitHub: [github.com/tkudlicka](https://github.com/tkudlicka)
 * LinkedIn: [linkedin.com/in/tkudlicka/](https://www.linkedin.com/in/tkudlicka/)
-* Twitter: [twitter.com/tkudlicka](https://twitter.com/tkudlicka)
+* Twitter: [twitter.com/tkudlicka](https://twitter.com/tkudlickaa)
